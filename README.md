@@ -1,1 +1,1 @@
-Tried bring back slavery so i licenced his bloodline
+Tried bring back slavery so i licensed his bloodline
